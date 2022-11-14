@@ -1,0 +1,1 @@
+My project is about how a more efficient 3D printing space would be very beneficial to the world. My main focus of the presentation is in the medical field. If the efficiency and innovation accelerates in the medical field, so many more lives will be saved.
